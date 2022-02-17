@@ -1,0 +1,3 @@
+# Osztalypenz
+# AtyaGatya
+ - niggerik
